@@ -11,6 +11,7 @@
 ###
 
 <p align="left">✨ Creating bugs since 2019<br>
+<p align="left">✨ Electrical Engineer<br>
 
 ###
 
